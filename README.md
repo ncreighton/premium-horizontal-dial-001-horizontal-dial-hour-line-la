@@ -1,0 +1,2 @@
+# premium-horizontal-dial-001-horizontal-dial-hour-line-la
+Tired of cramped vertical timelines that waste half your screen space? The Horizontal Dial &amp; Hour Line Layout Craft Lab transforms how you visualize time, schedules, and projects in Notion by giving you a sprawling, interactive horizontal workspace.  This isn't just another Notion template—it's a design system built specifically for horizontal thin
